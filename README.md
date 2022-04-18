@@ -1,4 +1,4 @@
-## Olá visitante 😄! Sou o Natan Ferreira, aspirante a Analista de Dados
+## Olá 😄! Sou o Natan, aspirante a Analista de Dados. É um prazer tê-lo aqui 
 
 
 
