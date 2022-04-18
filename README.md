@@ -1,4 +1,4 @@
-## Olá 😄! Sou o Natan, aspirante a Analista de Dados. É um prazer tê-lo aqui 
+## Olá 😄! Sou o Natan, aspirante a Analista de Dados. É um prazer tê-lo aqui!
 
 
 
